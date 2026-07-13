@@ -53,7 +53,7 @@
 
 ꒰ঌ ig : wh2spers_din
 
-꒰ঌ dc : wh2pers_we.
+꒰ঌ dc : wh2pers
 
 <img width="736" height="516" alt="image" src="https://github.com/user-attachments/assets/96d3d8d1-66c9-46e6-9b5b-d40c92bbc7a2" />
 
