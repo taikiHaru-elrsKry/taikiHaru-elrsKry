@@ -39,7 +39,7 @@
 
 𑣲⋆ catch me idols - yuzuru hanyu?
 
-<img width="736" height="444" alt="image" src="https://github.com/user-attachments/assets/218b3475-f89c-4b10-afcd-c763b51eabe1" />
+<img width="736" height="444" alt="image" src="https://github.com/user-attachments/assets/a81ba0f8-bcc6-4e09-84f6-747f748c3bc2" />
 
 ## 愛 | hey boy, wanna play game?
 ꒰ঌ pony town : 64b28c6495df7690ddd7c0a1
@@ -54,7 +54,7 @@
 
 ꒰ঌ dc : wh2pers_we.
 
-<img width="736" height="516" alt="image" src="https://github.com/user-attachments/assets/ba4b49ca-388b-4e78-ada1-239bd08d9052" />
+<img width="736" height="516" alt="image" src="https://github.com/user-attachments/assets/96d3d8d1-66c9-46e6-9b5b-d40c92bbc7a2" />
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=&pause=1000&color=C6C6C6&vCenter=true&width=435&lines=pls+love+me%2C+I+don't+wanna+be+alone)](https://git.io/typing-svg)
 
