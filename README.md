@@ -1,16 +1,62 @@
-## Hi there 👋
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=&pause=1000&color=C6C6C6&vCenter=true&width=435&lines=%F0%9D%96%BC%F0%9D%96%BA%F0%9D%97%87+%F0%9D%96%BA%F0%9D%97%87%F0%9D%97%80%F0%9D%96%BE%F0%9D%97%85%F0%9D%97%8C+%F0%9D%97%81%F0%9D%96%BE%F0%9D%96%BA%F0%9D%97%8B+%F0%9D%97%86%F0%9D%96%BE%3F+%F0%9D%9F%B7%F0%9D%9F%BB+%F0%9D%97%92%F0%9D%97%88+%F0%9D%97%81%F0%9D%97%88%F0%9D%97%8B%F0%9D%96%BE)](https://git.io/typing-svg)
 
-<!--
-**taikiHaru-elrsKry/taikiHaru-elrsKry** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## lıl﹕ 𝗍𝖺𝗂𝗄𝗂 𝖾𝗅𝗋 - 𝗍𝗁𝖾𝗈𝖽𝗈𝗋𝖾
 
-Here are some ideas to get you started:
+ ┈ 𝚑𝚎  𝚑𝚒𝚖 ✩ 𝔭𝔩𝔢𝔞𝔰𝔢 𝔤𝔦𝔳𝔢 𝔪𝔢 𝔞𝔱𝔱𝔢𝔱𝔦𝔬𝔫, 𝔩𝔬𝔳𝔢𝔯
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<img width="734" height="296" alt="image" src="https://github.com/user-attachments/assets/8d8523bc-fc0e-44a2-9a83-bd57b5baa046" />
+
+﹢ 𝖎𝖓𝖙𝖕 . °
+
+ 〣  𝓱𝓸𝓵𝓭 𝓶𝓮 𝓽𝓲𝓵𝓵 𝓽𝓱𝓮 𝓪𝓷𝓰𝓮𝓵 𝓬𝓸𝓶𝓮   .
+
+##  ִֶָ🪽་༘ 𝔱𝔞𝔦𝔨𝔦 𝔥𝔞𝔯𝔲
+
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=&pause=1000&color=C6C6C6&background=000000&vCenter=true&width=435&lines=%F0%9D%9F%8F%F0%9D%9F%93+%F0%9D%93%BD%F0%9D%93%AE%F0%9D%93%AE%F0%9D%93%B7%F0%9D%93%AA%F0%9D%93%B0%F0%9D%93%AE%F0%9D%93%BB)](https://git.io/typing-svg)
+
+
+## 愛 | hey boy, wanna get on?
+°˖➴ tran nhat dinh - theodore luca
+
+°˖➴ feb 12 - 15 yo
+
+°˖➴ he / him
+
+°˖➴ pansexual / aromantic
+
+°˖➴ intp
+
+°˖➴ volley ball, figure skate, bass, gem, music
+
+## 愛 | hey boy, wanna talk?
+𑣲⋆ 1st. doraemon - dc comic universe
+
+𑣲⋆ 2nd. conan - deathnote
+
+𑣲⋆ 3rd. evangelion - soul eater
+
+𑣲⋆ 4th. alien stage - juorney to the west/nezha fanfom
+
+𑣲⋆ catch me idols - yuzuru hanyu?
+
+<img width="736" height="444" alt="image" src="https://github.com/user-attachments/assets/218b3475-f89c-4b10-afcd-c763b51eabe1" />
+
+## 愛 | hey boy, wanna play game?
+꒰ঌ pony town : 64b28c6495df7690ddd7c0a1
+
+꒰ঌ miniworld : 238136410
+
+꒰ঌ roblox : Angelll_difq
+
+꒰ঌ minecraft : Difq4478
+
+꒰ঌ ig : wh2spers_din
+
+꒰ঌ dc : wh2pers_we.
+
+<img width="736" height="516" alt="image" src="https://github.com/user-attachments/assets/ba4b49ca-388b-4e78-ada1-239bd08d9052" />
+
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=&pause=1000&color=C6C6C6&vCenter=true&width=435&lines=pls+love+me%2C+I+don't+wanna+be+alone)](https://git.io/typing-svg)
+
+## the angel get lost... such mb
+
