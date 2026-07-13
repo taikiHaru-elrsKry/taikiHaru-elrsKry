@@ -4,7 +4,8 @@
 
  ┈ 𝚑𝚎  𝚑𝚒𝚖 ✩ 𝔭𝔩𝔢𝔞𝔰𝔢 𝔤𝔦𝔳𝔢 𝔪𝔢 𝔞𝔱𝔱𝔢𝔱𝔦𝔬𝔫, 𝔩𝔬𝔳𝔢𝔯
 
-<img width="735" height="294" alt="image" src="https://github.com/user-attachments/assets/7b7fd494-3837-4d79-8dc3-fed78f86c742" />
+ <img width="480" height="270" alt="image" src="https://github.com/user-attachments/assets/565fbb1e-b384-4efa-9a3c-32c857aaf347" />
+
 
 ﹢ 𝖎𝖓𝖙𝖕 . °
 
@@ -39,7 +40,7 @@
 
 𑣲⋆ catch me idols - yuzuru hanyu?
 
-<img width="736" height="444" alt="image" src="https://github.com/user-attachments/assets/a81ba0f8-bcc6-4e09-84f6-747f748c3bc2" />
+<img width="735" height="294" alt="image" src="https://github.com/user-attachments/assets/7b7fd494-3837-4d79-8dc3-fed78f86c742" />
 
 ## 愛 | hey boy, wanna play game?
 ꒰ঌ pony town : 64b28c6495df7690ddd7c0a1
