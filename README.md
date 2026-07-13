@@ -4,7 +4,7 @@
 
  ┈ 𝚑𝚎  𝚑𝚒𝚖 ✩ 𝔭𝔩𝔢𝔞𝔰𝔢 𝔤𝔦𝔳𝔢 𝔪𝔢 𝔞𝔱𝔱𝔢𝔱𝔦𝔬𝔫, 𝔩𝔬𝔳𝔢𝔯
 
- <img width="480" height="270" alt="image" src="https://github.com/user-attachments/assets/565fbb1e-b384-4efa-9a3c-32c857aaf347" />
+<img width="480" height="270" alt="Image" src="https://github.com/user-attachments/assets/8107e385-3d22-4ec0-ade9-5d67aae3404e" />
 
 
 ﹢ 𝖎𝖓𝖙𝖕 . °
