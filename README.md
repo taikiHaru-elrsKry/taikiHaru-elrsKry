@@ -1,5 +1,17 @@
 <img src="https://github.com/user-attachments/assets/95635892-42bf-4ae7-9d54-1f8255ff8fc5">
 
+<p align="center">
+
+<a href="https://www.facebook.com/luucae.dtnh>
+  <img src="https://img.shields.io/badge/Facebook-000000?style=for-the-badge&logo=facebook&logoColor=white">
+</a>
+
+<a href="https://instagram.com/tenban">
+  <img src="https://img.shields.io/badge/Instagram-000000?style=for-the-badge&logo=instagram&logoColor=white">
+</a>
+
+</p>
+
 <table>
 <tr>
 <td width="35%">
