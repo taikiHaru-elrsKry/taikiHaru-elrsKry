@@ -10,6 +10,10 @@
   <img src="https://img.shields.io/badge/Instagram-000000?style=for-the-badge&logo=instagram&logoColor=white">
 </a>
 
+<a href="https://discord.com/users/wh2pers">
+  <img src="https://img.shields.io/badge/Discord-000000?style=for-the-badge&logo=discord&logoColor=white">
+</a>
+
 </p>
 
 <table>
