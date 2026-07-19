@@ -44,4 +44,6 @@ Vietnamese - pansexual - 5.9 ft - feb . hoe - redflag
 </tr>
 </table>
 
-<img src="https://github-readme-activity-graph.vercel.app/graph?username=taikiHaru-elrsKry&theme=github-light&hide_border=true">
+<p align="center">
+  <img src="https://github-readme-activity-graph.vercel.app/graph?username=taikiHaru-elrsKry&bg_color=00000000&color=ffffff&line=ffffff&point=ffffff&area=true&area_color=222222&hide_border=true">
+</p>
