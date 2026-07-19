@@ -1,14 +1,10 @@
 <img src="https://github.com/user-attachments/assets/95635892-42bf-4ae7-9d54-1f8255ff8fc5">
 
-<table width="100%">
-  <tr>
-    <td width="35%" align="center">
-     <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/ed7767da-4837-482e-ba29-48eaaa9f3c5a" />
-    </td>
+
 
    <table width="100%">
 <tr>
-<td width="35%" align="center">
+  <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/ed7767da-4837-482e-ba29-48eaaa9f3c5a" />
 <img src="avatar.png" width="100%">
 </td>
 
