@@ -6,7 +6,7 @@
   <img src="https://img.shields.io/badge/Facebook-000000?style=for-the-badge&logo=facebook&logoColor=white">
 </a>
 
-<a href="https://instagram.com/tenban">
+<a href="https://instagram.com/wh2spers_din">
   <img src="https://img.shields.io/badge/Instagram-000000?style=for-the-badge&logo=instagram&logoColor=white">
 </a>
 
