@@ -4,13 +4,13 @@
 <tr>
 <td width="40%">
 
-<img width="735" height="546" alt="image" src="https://github.com/user-attachments/assets/9bb0b67e-4540-4f4c-be47-51c6e7df4bac" />
+<img width="735" height="731" alt="image" src="https://github.com/user-attachments/assets/4c929161-413d-4b3b-bf38-cdc4fdf8abbb" />
 
 </td>
 
 <td width="60%">
 
-# 👋 Who Am I?
+# Who am I ?
 
 
 
