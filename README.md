@@ -1,10 +1,5 @@
 <img src="https://github.com/user-attachments/assets/95635892-42bf-4ae7-9d54-1f8255ff8fc5">
 
-<td width="65%" valign="middle" align="center">
-
-<b><font size="6">Who Am I?</font></b><br><br>
-
-</td>
 <table>
 <tr>
 <td width="35%">
@@ -12,7 +7,10 @@
 </td>
 
 <td>
+  
+<td width="65%" valign="middle" align="center">
 
+<b><font size="6">Who Am I?</font></b><br><br>
 Xin chào, mình là Thiên 👋<br>
 💻 Front-end Developer<br>
 🎮 Persona 5 Fan
