@@ -16,11 +16,6 @@
 
 </p>
 
-｡ﾟﾟ ･ ｡ ･ﾟﾟ ｡
- ﾟ。i love angel❤︎
-    ﾟ ･
-
-
 <table>
 <tr>
 <td width="35%">
