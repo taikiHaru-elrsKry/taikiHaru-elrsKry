@@ -34,6 +34,12 @@
 
 Vietnamese - pansexual - 5.9 ft - feb . hoe - redflag
 
+<td width="65%" valign="middle" align="center">
+
+｡ﾟﾟ ･ ｡ ･ﾟﾟ ｡
+ﾟ。i love angel❤︎
+ 　ﾟ ･
+
 
 </td>
 </tr>
