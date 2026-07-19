@@ -43,3 +43,7 @@ Vietnamese - pansexual - 5.9 ft - feb . hoe - redflag
 </td>
 </tr>
 </table>
+
+<p align="center">
+  <img src="https://github-readme-activity-graph.vercel.app/graph?username=YOUR_USERNAME&theme=github-dark">
+</p>
