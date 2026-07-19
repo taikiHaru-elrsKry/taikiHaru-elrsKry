@@ -19,9 +19,7 @@
 <table>
 <tr>
 <td width="35%">
-<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/ef2f8f2f-e825-4902-b9e3-2ce41bba097b" />
-</td>
-
+<img width="736" height="713" alt="image" src="https://github.com/user-attachments/assets/dde25e90-bdad-40a6-abd1-6243086f0211" />
 <td>
   
 <td width="65%" valign="middle" align="center">
